@@ -1,4 +1,6 @@
 hi im gunna and im the best skid 🤣🤣
+
+
 ![](https://komarev.com/ghpvc/?username=guunna&color=blueviolet)
 
 <!---
